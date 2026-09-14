@@ -2,7 +2,8 @@
 
 
 
-I have two hands the left and the right
+naniniwala kaba na si rene baterbonia ang bituin ng mindanao?
+
 
 
 
